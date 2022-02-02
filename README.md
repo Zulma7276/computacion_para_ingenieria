@@ -1,2 +1,2 @@
 # computacion_para_ingenieria
-Zulma_laime_montaÑO
+Zulma_laime_montaño
